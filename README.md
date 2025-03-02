@@ -1,5 +1,5 @@
 
-👋 Hi, I’m @codelrene143  
+👋 Hi, I’m @codelrene143💀🖤
 👀 I’m interested in exploring new technology trends, creative writing, and crafting engaging content to inspire others.  
 🌱 I’m currently learning TypeScript, APIs, and web development to enhance my skills and create impactful projects.  
 💞️ I’m looking to collaborate on innovative ideas, inspirational content, and projects that bring positive change.  
